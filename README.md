@@ -1,1 +1,2 @@
-# -Nuevas-din-micas-tras-el-brexit
+# -Nuevas-dinámicas-tras-el-brexit
+Cinco años después del Brexit, el impacto aún marca el pulso económico. Reino Unido perdió peso como puerta de entrada al mercado europeo. Las regulaciones cambiaron, aumentaron los controles aduaneros y muchas compañías relocalizaron operaciones. La competencia creció y la estabilidad financiera sigue siendo un desafío que requiere respuestas ágiles y tecnológicas.
